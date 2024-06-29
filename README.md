@@ -1,96 +1,147 @@
-im sorry
+![image_2024-06-29_085441712](https://github.com/fkcyber/im_sorry/assets/174175281/e4b59350-8635-4f5d-b491-24323ba52afc)
+# Lain the Cuck
+## This is all a detrace from EOM/Lain/Slaterss.
+### Also, shout out to Evil Rabbit!
 
-im done with this community and ahve been for a very long time
+Lains Current Accounts
+- https://t.me/isomescaline
+- https://t.me/Twizzrin
+- https://t.me/scarlet_era **(Exit Scammed)**
+- https://t.me/nosqlbandit
 
-today was the last straw for my life.
+Thanks to [FreetheDreadPirate](https://github.com/FreetheDreadPirate) for fixing the grammar and punctuation.
 
-me and my girlfriend tried to kill ourselves together as a result of a rocky relationship and bad times - but we loved each other. I still do. she meant a lot to me. a lot more than anyone else
+**Let's talk about Lain right now.**
 
-we waited, and waited, and waited for that train and we both got hit. unfortunately i survived with 4 broken ribs and my legs essentially gone forever - ripped off and broken
+_This is my unfiltered response to all of this, other than what's in the () and the pictures:_
 
-i hate the community me and my best friend had bred, i thought i could make it better. i cant do this anymore, i just cant.
+Lain tried to be my friend multiple times, then tried to pay me to stop being friends with someone who has only spoken positively about me and helped me out a lot—because Dyslexic is a good friend and has had my back. Now, funny enough, Dyslexic only cared about you when you were lurking in his group chats on alts, recording and listening in. lain really thought he was like 007 icl. Let's not forget the time you sent your girlfriend to flirt with Dylan in Fwendies to try to dox him. And you spent so much time trying to mess with and dox Dyslexic that he made a tier list of your failed attempts.
 
-to those that have respected my decision, thank you. appreciation for that is the only thing i feel now.
+https://x.com/D4RKR4BB1T47/status/1806250029197254892
 
-to those that believe dyslexic/discord with a single thing he mentions about our relationship - you remain fucking retarded since i lied to him about so much. to those that have 
-received the "fuck off" from anybody close to me when asking about anything personal, you really do deserve it, you dont deserve to know a thing.
+(this is him btw)
+https://x.com/D4RKR4BB1T47/status/1806221481665352182
 
-dyslexic, i honestly didnt do a thing to you. you used me and Noxia for slave dev work and when i stopped being ur friend because of it u repeatedly caused drama which affected my life quite largely.
-you are a disgusting human and i genuinely hope u just get the karma from it. i dont want anything more than for u to understand how i felt when i realised one of my best friends snaked me behind my back.
-you are single handedly one of the worst people ive ever met and you convince anyone u can that anyone u dont like is a bad person who is retarded.
+(Lain is trying to get his 'friends' to care.)
+https://x.com/D4RKR4BB1T47/status/1805765182615953505
+I'm sorry.
+**(It's a detrace.)**
 
-i never leaked naz, that was Crime from ransomed.vc
-i never leaked Nox's city, that was silvano, who for some reason ur still convinced is me even tho we're both active at different, and the same time
-ive never done anything malicious against you and u still persist to go against me just because im not ur slave.
+I'm done with this community and have been for a very long time.
+**(He scammed a lot of people.)**
 
-lying about what happened with my girlfriend in January, even tho i told u i never told u the truth about it. i stopped respecting u the moment u spread it around that i got cucked, even though i didnt.
+Today was the last straw for my life.
+**(All his friends were snaking him, lol)**
 
+Me and my girlfriend tried to kill ourselves together as a result of a rocky relationship and bad times — but we loved each other. I still do. She meant a lot to me, a lot more than anyone else
+**(They broke up. She's fine; she's getting piped by a different dude.)**
 
-noxia i dont even know what to say about you. i just stoped having respect when you started to favour the no-money giving scum over real friendship. you know exactly who im talking about.
-you are a fucking snake which nobody but the faggots in fwendies like. i still had the decency to leave u and ur boyfriend alone. you did something unspeakable against me which i wouldnt forgive you for
-even if i fail to kill myself tomorrow. i never leaked what happened with u and ur ex to anyone. somehow you thought it was okay to leak the shit i went through with an old APT group.
+We waited, and waited, and waited for that train and we both got hit. Unfortunately, I survived with 4 broken ribs and my legs essentially gone forever — ripped off and broken.
+**(Manchester news is exposing him for lying, ICL.)**
+![image_2024-06-29_085605175](https://github.com/fkcyber/im_sorry/assets/174175281/afc5a182-aded-4adc-a590-c1c59e8f717b)
 
-you're a fucking liar noxia.
+I hate the community me and my best friend had bred, I thought I could make it better. I cant do this anymore, I just can't.
+**(Bro, you still owe me $400. When can I expect to get my money? ETH - 0x8A051E95cAD32E1709a713F99244009F20252504)**
+![image_2024-06-29_085750522](https://github.com/fkcyber/im_sorry/assets/174175281/8d64e3f0-fb45-41b1-9fd9-a51818d4c2c1)
 
+To those that have respected my decision, thank you. Appreciation for that is the only thing I feel now.
+**(No one respected you, bro.)**
 
-i miss astounding so much. i really do. 
+To those that believe Dyslexic/Discord with a single thing he mentions about our relationship, you remain fucking retarded since I lied to him about so much. To those that have received the "fuck off" from anybody close to me when asking about anything personal, you really do deserve it, you don't deserve to know a thing.
+**(But, bro, he been telling the truth this whole time. You got cheated on, got back with her, then scammed him for 100.)**
 
-pongo im really sorry man, i really do believe that u are a good friend. we had a lot of fun whilst knowing each other. love u 
+Dyslexic, I honestly didn't do a thing to you. you used me and Noxia for slave dev work and when I stopped being your friend because of it you repeatedly caused drama which affected my life quite largely. You are a disgusting human and I genuinely hope you just get the karma from it. I don't want anything more than for you to understand how I felt when I realised one of my best friends snaked me behind my back. You are single handedly one of the worst people I've ever met and you convince anyone you can that anyone you don't like is a bad person who is retarded.
+**(But you got paid for work you didn't finish multiple times by him, then were spreading lies about him.)**
 
-i really do respect frank. hes cool, and out of that respect im not going to leak the things i know. its nothing bad, so dont pester him about "the bad thing in lains suicide letter". just respect him and what he does, if 
-he doesnt want something to be spread about, its probably for good reason. listen to him
+I never leaked naz, that was Crime from ransomed.vc I never leaked Nox's city, that was Silvano, but for some reason you're still convinced is me even though we're both active at different, and the same time. I've never done anything malicious against you and you still persist to go against me just because I'm not your slave.
+**(You 'leaked' a version of Naz you made and a version that wasn't being used by Dyslexic. You again broke your friend's trust.)**
 
-illicit/cellebrite - smartest guy i know, but a bad pathological liar. chose what u want to believe unless its about tech. if its about computers, tech, anything in that field - shut ur mouth and just listen.
+Lying about what happened with my girlfriend in January, even though I told you I never told you the truth about it. I stopped respecting you the moment you spread it around that I got cucked, even though I didn't.
+**(So you lied to your friends to make everyone feel sorry for you? It's crazy how you keep getting cheated on.)**
+_(FreetheDreadPirate note: he probably did, yet he decided to an hero with her)_
 
-helladrol i love u man, ur a good friend, u deserve a lot. ur kind and u really just need to keep a strong mind. love u man
+Noxia, I don't even know what to say about you. I just stopped having respect when you started to favour the no-money giving scum over real friendship. You know exactly who I'm talking about. You are a fucking snake which nobody but the faggots in fwendies like. I still had the decency to leave you and your boyfriend alone. You did something unspeakable against me which I wouldnt forgive you for even if I fail to kill myself tomorrow. I never leaked what happened with you and your ex to anyone. Somehow you thought it was okay to leak the shit I went through with an old APT group.
+**(You stabbed them both in the back multiple times, scammed one, and betrayed the other. Then you spent a 9 to 5 on Telegram beefing with him, The thing about the apartment group is a lie, lol.)**
 
-zoolpal - bro u have the most creative mind ive ever spoken to and im sorry i wasted ur time with the navi project. i really am. u mean a lot. thanks
+You're a fucking liar Noxia.
+**(You agreed you lied multiple times in this note.)**
 
-chimera/banishedangel man i was pretty close with u, sorry i couldnt give u the time to be more open.love u
+I miss Astounding so much. I really do.
+**(He isn't dead, though. He's on Telegram chilling, lmfao, He also lied about having cancer for money.)**
 
-arm, just read tele.
+Pongo, I'm really sorry man, I really do believe that you are a good friend. We had a lot of fun whilst knowing each other. Love you.
 
-smelly, read tele.
+I really do respect Frank. He's cool, and out of that respect I'm not going to leak the things I know. It's nothing bad, so dont pester him about "the bad thing in Lains suicide letter," just respect him and what he does. If he doesnt want something to be spread about him, it's probably for good reason. Listen to him.
 
-meta i really respect u for being one of the only people to respect my decision on ending myself. everyone else had to be prompted
+Illicit/Cellebrite — smartest guy I know, but a bad pathological liar. Choose what u want to believe unless it's about tech. If its about computers, tech, anything in that field — shut your mouth and just listen.
 
-dreamt man im so fucking sorry. i really am sorry. i dont mean to put u through this but i cannot live anymore. i just cant do it.
+Helladrol, I love you man. You're a good friend, you deserve a lot. Your kind and you really just need to keep a strong mind. Love you man.
 
-i was also known as someone in the hacking community from april 2023 - november 2023. some of u will know, some of u wont. if u dont know, dont ask, you wont get the answer u wished for.
+Helladrol, I love you man. You're a good friend, you deserve a lot. Your kind and you really just need to keep a strong mind. Love you man.
 
-im sorry vadim, ur fuckin dum but i love u. im sorry
+Chimera/Banishedangel — Man I was pretty close with you, sorry I couldnt give you the time to be more open. Love you.
 
-i was Head Panda. I owned pandaTLO. i owned COSE/Navi
+Arm, just read Telegram.
 
-all of my ongoing projects will be given to the current person on the Panda account, a/k/a Swank/zwan. i owned the account and the projects, they are now in the hands of somebody else.
-hes a respectable and smart developer.
+Smelly, read Telegram.
 
-the chat will probably be handed off to chimera and pongo. u guys can be good friends now. just pongo, dont troll chimera too much.
+Meta, I really respect you for being one of the only people to respect my decision on ending myself. everyone else had to be prompted.
+
+Dreamt man I'm so fucking sorry. I really am sorry. I dont mean to put you through this but I cannot live anymore. I just can't do it.
+
+I was also known as someone in the hacking community from April 2023 - November 2023. Some of you will know, some of you won't. If you don't know, don't ask, you wont get the answer you wished for. 
+
+I'm sorry Vadim, your fuckin dumb but I love you. I'm sorry.
+**(You scammed this dude who you went under as 'Slaters'.)**
+
+I was Head Panda. I owned pandaTLO. I owned COSE/Navi.
+**(You scammed SXUL for this data, then sold it for 10k.)**
+
+All of my ongoing projects will be given to the current person on the Panda account, a/k/a Swank/zwan. I owned the account and the projects, they are now in the hands of somebody else. He's a respectable and smart developer.
+(This is your alt though, this is you.)
+
+The chat will probably be handed off to Chimera and Pongo. You guys can be good friends now. Just pongo, dont troll Chimera too much.
 
 OH AND:
 
+Sxul is a fucking scammer. He isn't a good hacker whatsoever, or dev for that matter. He scammed somebody of $100k with selling the NationalPublicData breach. He is a LARP and nobody should ever trust the moniker "SXUL" again. Other aliases he has undergone are "Slater" "Grims" "Sxul Grims" "Slater Grims". NPD is around 295 MILLION records/lines, not 2.95 billion. He added a 0 and sold it to some chinese nigger for $100k. Out of respect for my past friendship with him — I'll keep his real info completely hidden and I've burnt all possible sources for it. I'm sorry Sxul, but I'm really not. You were a terrible friend for so long, and an even worse liar.
+**(You scammed this dude for over 10k and pretended you could dump databases to him.)**
+
+Alex Terrible/Herawen - I don't really know what to say, I've told you how much I appreciate you in the past. I really loved our friendship, but when you chose to believe Sxul, who just used you time and time again for your resources, I lost respect completely. So carry on with your dev work, just move on after you read this.
+
+Somebody message "ies0" on Discord and show them that this entire message is from me. I'm sorry I failed u man — I am only honest with you, and I'm sorry for any trouble I caused you recently surrounding that who fiasco the other day. We're very similar, and just teach YOUR little brother to stop being a com-monster like my little brother was.
+
+I'm really sorry to the people that loved me. To the people that hated me I'm more sorry to myself than you, I loved that shit so much.
+
+Bye.
+
+> lain @ridgedforums, [25 Jun 2024 02:46:22] oh and to the people i told that asotunding is still alive - astounding is fucking dead, just like how i will be tomorrow, i lied and said that so u would ask no more questions to who was behind the ice account, astounding is dead, he had his funeral a good few weeks ago. i miss him a lot
+
+> lain @ridgedforums, [25 Jun 2024 02:46:44] there are over 8 people on the ice account, and the 4 sessions is a spoofed tdata
+
+### lain @ridgedforums, 
+> it let me transfer it to chimera
+
+> @BanishedAngel dont ever make unfair decisions without pongo's talking
+
+> dont do anything i wouldnt
+
+> if ygm
+
+> @BanishedAngel u have ownership
+
+> u can do whatever now
+
+> im waiting for the nurse to finish talking to my mum so they can both leave to go to the shop
+
+> then im getting a wheelchair
+
+> and going home
+
+> to get a rifle
+
+> goodbye man
 
 
-Sxul is a fucking scammer. he isnt a good hacker whatsoever, or dev for that matter. he scammed somebody of 100k with selling the NationalPublicData breach. he is a larp and nobody should ever trust the moniker:
-"SXUL" again. other aliases he has undergone are "slater" "grims" "sxul grims" "slater grims". NPD is around 295 **MILLION** records/lines, not 2.95 billion. he added a 0 and sold it to some chinese nigga for 100k
-out of respect for my past friendship with him - ill keep his real info completely hidden and ive burnt all possible sources for it. im sorry sxul, but im really not. you were a terrible friend for so long, and an 
-even worse liar.
-
-alex terrible/herawen - idrk what to say, ive told u how much i appreciate you in the past. i really loved our friendship, but when u chose to believe sxul, who just used u time and time again
-for ur resources, i lost respect completely. so carry on ur dev work, just move on after u read this.
-
-somebody message "ies0" on discord and show them that this entire message is from me. im sorry I failed u man - I am only honest  with you, and im sorry for any trouble
-I caused u recently surrounding that who fiasco the other day. we're very similar, and just teach YOUR little brother to stop being a com-monster like my little brother was.
-
-im really sorry to the people that loved me. to the people that hated me im more sorry to myself than u, i loved that shit so much.
-
-bye
-
-lain @ridgedforums, [25 Jun 2024 02:46:22]
-oh and to the people i told that asotunding is still alive - astounding is fucking dead, just like how i will be tomorrow
-
-i lied and said that so u would ask no more questions to who was behind the ice account, astounding is dead, he had his funeral a good few weeks ago. i miss him a lot
-
-lain @ridgedforums, [25 Jun 2024 02:46:44]
-there are over 8 people on the ice account, and the 4 sessions is a spoofed tdata
-
+![image_2024-06-29_085813875](https://github.com/fkcyber/im_sorry/assets/174175281/3351a9b7-7f86-4ded-aa86-a6ab73ad9c4e)
+![image_2024-06-29_085831953](https://github.com/fkcyber/im_sorry/assets/174175281/79163c4b-5ea8-4d2c-beee-ec0c73712b2a)
