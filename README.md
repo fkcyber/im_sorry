@@ -121,15 +121,25 @@ Bye.
 
 ### lain @ridgedforums, 
 > it let me transfer it to chimera
+
 > @BanishedAngel dont ever make unfair decisions without pongo's talking
+
 > dont do anything i wouldnt
+
 > if ygm
+
 > @BanishedAngel u have ownership
+
 > u can do whatever now
+
 > im waiting for the nurse to finish talking to my mum so they can both leave to go to the shop
+
 > then im getting a wheelchair
+
 > and going home
+
 > to get a rifle
+
 > goodbye man
 
 
